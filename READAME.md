@@ -1,0 +1,1 @@
+La Honda RC100 et ses dérivées RC101 et RC101B sont des prototypes de monoplace de Formule 1 conçus, entre 1991 et 1996, par les jeunes ingénieurs du département recherche et développement de Honda ; elles sont destinées à offrir un nouveau défi technique aux ingénieurs du constructeur japonais qui s'investissent dans ce projet en dehors de leur temps de travail.
